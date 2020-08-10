@@ -41,5 +41,9 @@ https://paranoiaseal.github.io/
 
 ​	~~（Doki Doki Paranoiaseal Club~~
 
+#### Cosmos ：“这是个骗人的工作组”
+
+​	~~（这就是嘤嘤饭本人了，他说的事假的（~~
+
 ### 感谢您的支持！
 
