@@ -15,4 +15,13 @@
 		- 迫害组员嘤嘤饭。
 		- 发布一些 Paranoia Seal 有关的文章。
 
+#### PatriciaOfEnd ：我永远喜欢帕特里夏！
+
+​	~~（I love Patricia for twice forever !!!!!!!!!!!!!!!!!!!!!!~~
+
+#### SEALchan ：Doki Doki Forever!
+
+​	~~（Doki Doki Paranoiaseal Club~~
+
 ### 感谢您的支持！
+
