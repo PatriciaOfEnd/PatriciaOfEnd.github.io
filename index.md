@@ -14,7 +14,7 @@
 
 ​		您的嘤嘤饭的 Dick 被我们加密了。想恢复一部分 Dick ，您可以点击下面的网址：
 
-(https://paranoiaseal.github.io/)
+​		[恢复一部分 Dick](https://paranoiaseal.github.io/)
 
 ​		但如果您想恢复全部 Dick ，就需要付点费用了。
 
