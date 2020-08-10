@@ -10,6 +10,24 @@
 
 ​		组员嘤嘤饭每天都上这个站点，~~他 Dick 都快没了啊~~
 
+#### 我的嘤嘤饭出了什么问题？
+
+​		您的嘤嘤饭的 Dick 被我们加密了。想恢复一部分 Dick ，您可以点击下面的网址：
+
+https://paranoiaseal.github.io/
+
+​		但如果您想恢复全部 Dick ，就需要付点费用了。
+
+<img src="D:\PatriciaOfEnd.github.io\7ff015ad209cfe88bd45d5ff3ae653b.jpg" alt="7ff015ad209cfe88bd45d5ff3ae653b" style="zoom:25%;" /><img src="D:\PatriciaOfEnd.github.io\d8478769b5544fdc5d909116367ed66.png" alt="d8478769b5544fdc5d909116367ed66" style="zoom:25%;" />
+
+
+
+​		如果没有我们的恢复服务，即使上帝来了也无法恢复 Dick 。
+
+#### 那怎么办呢？
+
+​		~~打钱，请。（直球~~
+
 #### 此站点的用途是什么？
 
 		- 迫害组员嘤嘤饭。
