@@ -32,7 +32,7 @@
 	- 发布一些 Paranoia Seal 有关的文章。
 	- 由 PatriciaOfEnd 整活。
 
-PatriciaOfEnd ：我永远喜欢帕特里夏！
+## PatriciaOfEnd ：我永远喜欢帕特里夏！
 
 ​	~~（I love Patricia for twice forever !!!!!!!!!!!!!!!!!!!!!!~~
 
