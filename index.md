@@ -32,7 +32,7 @@
 	- 发布一些 Paranoia Seal 有关的文章。
 	- 由 PatriciaOfEnd 整活。
 
-#### PatriciaOfEnd ：我永远喜欢帕特里夏！
+PatriciaOfEnd ：我永远喜欢帕特里夏！
 
 ​	~~（I love Patricia for twice forever !!!!!!!!!!!!!!!!!!!!!!~~
 
@@ -55,5 +55,9 @@
 ​	~~（这就是嘤嘤饭本人了，他说的事假的（~~
 
 ​		~~他还给了一句备注但是我没加（~~
+
+#### Paranoia Seal ~~实名上网第一人~~ 冯奕康： 哪个 nt 把我们楼的光纤砍了
+
+​	~~如果他（指 SEALchan ） 去世了，对我影响非常深远。我的考试名次会足足前进一名之多~~
 
 ### 感谢您的支持！
