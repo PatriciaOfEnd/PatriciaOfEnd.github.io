@@ -31,6 +31,7 @@
 	- 迫害组员嘤嘤饭。
 	- 发布一些 Paranoia Seal 有关的文章。
 	- 由 PatriciaOfEnd 整活。
+	- 以后再搞这种东西我他妈直接红色感叹号
 
 ## PatriciaOfEnd ：我永远喜欢帕特里夏！
 
@@ -62,9 +63,9 @@
 
 ​	~~如果他（指 SEALchan ） 去世了，对我影响非常深远。我的考试名次会足足前进一名之多~~
 
-### 感谢您的支持！
+# 感谢您的支持！下方可能会更新实时内容：
 
-### 请您了解一下满分作文： \# 生活在 YYF 的 Dick 上
+### ~~请您了解一下满分作文： \# 生活在 YYF 的 Dick 上~~
 
 ​		现代计算机科学以 Cosmos 的“ This is a lying workgroup. ”为嚆矢。滥觞于 ParanoiaSeal 学与数学的期望正失去它们的借鉴意义。但面对看似无垠的未来天空，我想循 SEALchan “ Nobody loves China better than me. ”好过过早地振翮。
 
